@@ -186,13 +186,13 @@ fall-armyworm-detection/
 
 - Wilson Divine Wopara
 - Oluwapelumi Babalola
+- Azeez Abdulhakeem
 - Samuel Egbon
 - Glory Godwin
 - Tamukong Elvis Achu
 - Zaharaddeen Abdulsalam
 - Ibrahim David Mohammed
 - AJAYI ADEOLA ABRAHAM
-- Azeez Abdulhakeem
 - Mohammed Muye Umar
 - Egharevba Eghosa
 - Khadijat hassan-dogo
